@@ -4,7 +4,7 @@
 
 (電影)免費線上看【鬼聲泣】 ：
 
-➤[https://atmovies.fun/zh/movie/1134433](https://atmovies.fun/zh/movie/1134433)
+➤[https://atmovies.fun/zh/1134433/death-whisperer.html](https://atmovies.fun/zh/1134433/death-whisperer.html)
 
 台灣 No.1 高清正版線上看 | 460p - 720p - 1080p - BRRip - DvdRip - 4KUHD
 
